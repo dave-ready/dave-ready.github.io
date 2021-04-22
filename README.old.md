@@ -1,1 +1,0 @@
-# dave-ready.github.io
